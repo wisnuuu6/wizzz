@@ -1,2 +1,0 @@
-Wizzz
-# wizzzweb
